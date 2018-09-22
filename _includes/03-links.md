@@ -1,1 +1,1 @@
-[Link to Guy] (https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.gq.com%2Fphotos%2F59dfc6d9d61cb80476584e18%2F3%3A2%2Fw_640%2Fguy-fieiri-flame.jpg&imgrefurl=https%3A%2F%2Fwww.gq.com%2Fstory%2Fguy-fieri-hates-the-shirt-you-most-associate-with-guy-fieri&docid=yhACNvNPb3lVEM&tbnid=3WzBZh7_41PgpM%3A&vet=10ahUKEwj59MbGyM_dAhVL9YMKHdM9CqcQMwiMAigAMAA..i&w=640&h=427&bih=723&biw=1536&q=guy%20fieri&ved=0ahUKEwj59MbGyM_dAhVL9YMKHdM9CqcQMwiMAigAMAA&iact=mrc&uact=8)
+![Link to Guy] (https://www.gq.com/story/guy-fieri-hates-the-shirt-you-most-associate-with-guy-fieri)
